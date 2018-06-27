@@ -1,0 +1,2 @@
+# VeritabaniKarsilastirmaProjesi
+VeritabaniKarsilastirmaProjesi
